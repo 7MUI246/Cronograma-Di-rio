@@ -16,6 +16,8 @@
 
 - Limpar o banheiro 
 
+- Lavar Roupa 
+
   ## Estudos : 4h
 
    
